@@ -33,7 +33,7 @@ The following presents a tentative schedule of the summer school (all times ET):
 | 09:30 - 10:00 |           |          |        |         |           |          |
 | 10:00 - 11:00 | Getting to know track groups | Work in track groups | Ana Varela Varela | | Corbett Grainger | Discussing Research Projects |
 | 11:00 - 12:00 | | | | | | |
-| 12:00 - 13:00 | Keynote 1 | Belinda Archibong | Vijay Limaye | | Workshop | Goodbye |
+| 12:00 - 13:00 | Workshop 1 | Belinda Archibong | Vijay Limaye | | Workshop | Goodbye |
 
 
 
